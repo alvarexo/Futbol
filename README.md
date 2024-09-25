@@ -1,9 +1,9 @@
-# Trayectoria
+# Trayectoria 
 [Transfermarkt](https://www.transfermarkt.es/kylian-mbappe/profil/spieler/342229)
 
 [Wikipédia](https://ca.wikipedia.org/wiki/Kylian_Mbapp%C3%A9)
 
-### Trayectoria de Mbappé
+## Trayectoria de Mbappé
 
 - En 2014 Mbappé debutó en la seleccion francesa sub-17
 
