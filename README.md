@@ -28,11 +28,19 @@
 ![Fichaje Mbappé PSG](https://e00-marca.uecdn.es/assets/multimedia/imagenes/2017/09/07/15048085864229.jpg)
 
 - 2018-2024 esta fue la estancia de Mbappé en el Paris Saint-Germain
-  
-### Actualidad
 
 - En 2024 se hizo realidad el sueño de Mbappé, que era vestir la camiseta blanca y el Real Madrid esperó hasta que su contrato con el Paris Saint-Germain acabará, para poder hacer el fichaje
 
 - El 1 de julio de 2024, Mbappé ficha por el Real Madrid hasta 2029
 
 ![Mbappé](https://i0.wp.com/nuevodiario-assets.s3.us-east-2.amazonaws.com/wp-content/uploads/2024/06/03100842/WhatsApp-Image-2024-06-03-at-1.50.07-PM.jpeg?fit=1176%2C1345&quality=100&ssl=1)
+  
+## Actualidad
+
+- En la actualidad Kylian Mbappé es 1 de los 4 jugadores mas caros con un valor de 180 millones en el mercado
+
+
+
+
+
+
